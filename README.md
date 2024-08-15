@@ -1,4 +1,5 @@
-# gday, im *ata*
+[![](https://visitcount.itsvg.in/api?id=at4pm&label=Profile%20Views&icon=5&pretty=true)](https://visitcount.itsvg.in)
+# howdy, im *ata*
 
 ## info
 well im autistic, i can code, im aussie.. and thats all you need to know
